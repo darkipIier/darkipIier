@@ -11,7 +11,7 @@
   <br>
   <tr>
     <td>
-      <img src="https://i.postimg.cc/DwQzYBK2/image.gif">
+      <img width="498" height="280" alt="image" src="https://github.com/user-attachments/assets/7c020f9b-54c9-4a78-b369-ba96c71ff0a5" />
       <br>
     </td>
   </tr>
