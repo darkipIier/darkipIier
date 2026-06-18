@@ -11,6 +11,6 @@
   </tr>
 </table>
 </div>
-⠀⠀⠀⠀⠀⠀⠀⠀⠀my⠀l̲o̲v̲e̲ ... 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀i don't care what you think ... 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀can you teach me to be⠀𝙧𝙚𝙖𝙡⠀.ᐣ
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀as long as it's about me.
