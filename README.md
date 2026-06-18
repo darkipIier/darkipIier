@@ -1,24 +1,16 @@
-<div align="center">
+<img src="https://i.postimg.cc/3r0jfzvP/Untitled717-20260618015937.png#left" height="400" width="133" align="left">
   
-![](https://komarev.com/ghpvc/?username=darkipIier&color=000000&style=for-the-badge)
-</div>
-<div align="center">
-  
-  [rentry](https://rentry.co/darkipIier)⠀⠀ ⠀[𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://flipside.atabook.org)⠀⠀⠀[collective](https://github.com/lronmary)
-</div>
-<div align="center">
+⠀⠀⠀![](https://komarev.com/ghpvc/?username=darkipIier&color=000000&style=for-the-badge)⠀⠀⠀[𝗥𝗘𝗡𝗧𝗥𝗬](https://rentry.co/darkipIier)⠀⠀ ⠀[𝗔𝗧𝗔𝗕𝗢𝗢𝗞](https://flipside.atabook.org)⠀⠀⠀[𝗖𝗢𝗟𝗟𝗘𝗖𝗧𝗜𝗩𝗘](https://github.com/lronmary)
 <table>
   <br>
   <tr>
     <td>
-      <img width="498" height="280" alt="image" src="https://github.com/user-attachments/assets/7c020f9b-54c9-4a78-b369-ba96c71ff0a5" />
+      <img alt="image" src="https://i.postimg.cc/44P2ZDdn/607412964-7c020f9b-54c9-4a78-b369-ba96c71ff0a5-3.gif" />
       <br>
     </td>
   </tr>
 </table>
 </div>
-<div align="center">
-if i'm a m͟o͟n͟s͟t͟e͟r,⠀possessed to 𝘮𝘢𝘯𝘨𝘭𝘦
+⠀⠀⠀⠀⠀⠀⠀⠀⠀my⠀l̲o̲v̲e̲ ... 
 
-⠀⠀𝘺𝘰𝘶're⠀the only dancer i don't wanna s͟t͟r͟a͟n͟g͟l͟e͟.
-</div>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀can you teach me to be⠀𝙧𝙚𝙖𝙡⠀.ᐣ
