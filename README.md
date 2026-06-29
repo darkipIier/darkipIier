@@ -1,4 +1,4 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://i.postimg.cc/3r0jfzvP/Untitled717-20260618015937.png#left" height="400" width="133" align="left">
+<img align="left" src="https://i.postimg.cc/sDBDX6k3/Untitled717-20260618015937-2.png">
   
 ⠀⠀⠀![](https://komarev.com/ghpvc/?username=darkipIier&color=000000&style=for-the-badge)⠀⠀⠀[𝗥𝗘𝗡𝗧𝗥𝗬](https://rentry.co/darkipIier)⠀⠀ ⠀[𝗔𝗧𝗔𝗕𝗢𝗢𝗞](https://flipside.atabook.org)⠀⠀⠀[𝗦𝗧𝗥𝗔𝗪𝗣𝗔𝗚𝗘](https://darkipIier.straw.page)
 <table>
